@@ -1,2 +1,2 @@
-# muturiajethro.github.io
+# auraedge.tech
 trading website 
